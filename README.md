@@ -4,7 +4,7 @@ A Automatic CC Scraper For Telegram And Send It in to a group or channels
 
 ## ➪JOIN OUR TELEGRAM☠︎︎
 
-[Join Telegram](https://t.me/cyberxbd)
+[Join Telegram](https://t.me/nullsrc)
 
 1 - Post Tools Python & PHP ✅️
 2 - Combo - Config - CC - BINs ✅️
